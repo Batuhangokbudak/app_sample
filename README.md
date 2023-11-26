@@ -1,3 +1,3 @@
-![ornek3.png](..%2F..%2FUsers%2Fbatuh%2FOneDrive%2FMasa%FCst%FC%2Fornek3.png)
+![ornek3](https://github.com/Batuhangokbudak/app_sample/assets/120169258/4703993f-62f6-48dd-a41e-150eb7ca0cf8)
 
 @keyvanarasteh
